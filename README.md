@@ -1,6 +1,6 @@
 # Interview-Notes
 
-Tell me about yourself.
+Tell me about yourself. - Living in San antonio, originally from Ohio. Background in marketing. Love to learn, love to work with people of all kinds of backgrounds (learning different perspectives/approaches to problems). All this gives me maximum opportunity to grow and improve myself.
 
 What do you know about our company?
 
